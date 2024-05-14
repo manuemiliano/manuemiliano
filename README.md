@@ -2,5 +2,4 @@
 
 Acesse logo abaixo ↓
 
-![image](https://github.com/manuemiliano/manuemiliano/assets/169176875/d487e736-2168-43f9-b32c-496a88e22e0b)
-
+![](https://media1.tenor.com/m/r0R0N3dI3kIAAAAd/dancing-cat-dance.gif).
